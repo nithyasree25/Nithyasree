@@ -1,2 +1,2 @@
 # Nithyasree_ECE_VIT
-I'm pursuing ECE final year in velammal institute of technology. 
+I'm pursuing ECE final year in Velammal Institute of Technology. 
